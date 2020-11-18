@@ -1,5 +1,4 @@
 ### Hi there 👋, my name is Lior.
-#### I am a Develoepr Relationship Manager
 
 :video_game: Gamer :hotel: Israel :pizza: Food lover 
 
